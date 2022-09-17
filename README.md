@@ -1,2 +1,2 @@
-# r4reetik.github.io
-TBUS...
+# Reetik Rajan \[r4reetik\]
+Learning **Jeklly** 🙊
